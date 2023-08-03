@@ -24,6 +24,8 @@ drawabox.com also looks like it would be good so try that one out.
 
 (https://archive.org/details/Scott_Robertson_How_To_Draw/page/73/mode/2up)
 
+(https://www.youtube.com/watch?v=GXA17StLpGk)
+
 ### VIDEOS
 
 (https://www.youtube.com/playlist?list=PLflflDShjUKH4EfZyf0vuKEuqeqvlV0Qd)
