@@ -1,6 +1,11 @@
-# art_resources
+# readme
 
-Start with practicing the photos I have added to the folder, then  find some other photos you would want to look at and recreate ones youre interested in.
+Start with practicing the photos I have added to the folder,
+just to be clear you do not need to use the photos I have added. Draw what ever you want you draw when you want to draw, these are for if you dont have anything or dont know where to start.
+
+Next you can find some other photos you would want to look at and recreate ones youre interested in.
+Or draw characters from your favourite media, pinterest is a good resource.
+
 The ones I have added are supposed to be pretty like "simple" references so you dont have to focus on too much detail. When youre working on these just try to do the best you can on the main subject and dont worry about the background or side stuff.
 
 Next you can also try drawing stuff around you, mouse, banana, light switch whatever.
@@ -13,7 +18,7 @@ Once you work through those I would try these resources for practice. Some of th
 
 drawabox.com also looks like it would be good so try that one out.
 
-##LINKS
+## LINKS
 
 (https://drawabox.com/)
 
@@ -27,7 +32,7 @@ start with ^^^^
 
 (https://youtu.be/QBv5z0Y2odE)
 
-###PAINTING
+### PAINTING
 
 (https://youtu.be/zC3OxonJcXQ)
 
