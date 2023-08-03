@@ -24,7 +24,7 @@ drawabox.com also looks like it would be good so try that one out.
 
 (https://archive.org/details/Scott_Robertson_How_To_Draw/page/73/mode/2up)
 
-start with ^^^^
+### VIDEOS
 
 (https://www.youtube.com/playlist?list=PLflflDShjUKH4EfZyf0vuKEuqeqvlV0Qd)
 
@@ -32,7 +32,7 @@ start with ^^^^
 
 (https://youtu.be/QBv5z0Y2odE)
 
-### PAINTING
+#### PAINTING
 
 (https://youtu.be/zC3OxonJcXQ)
 
